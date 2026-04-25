@@ -1,1 +1,1 @@
-# 2x2-Firestarter-Collective
+[2x2's Strawpage](https://azarfsc.straw.page)
